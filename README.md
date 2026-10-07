@@ -1,0 +1,2 @@
+# premium-bound-buttonhole-001-bound-buttonhole-welt-pocket
+Struggling to organize your bound buttonhole and welt pocket techniques without losing your best patterns and measurements? The Bound Buttonhole &amp; Welt Pocket Craft Studio transforms scattered notes into a professional design system.  This Notion template centralizes every aspect of your pocket craft—from technique refinement to pattern storage to
